@@ -1,0 +1,3 @@
+- Cristian Josue Cori Copa
+- Alvaro Fabian Chuquimia 
+- Raul Mamani Suxo
